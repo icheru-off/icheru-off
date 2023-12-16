@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi there, I'm Jules 👋
+Hi there, I'm Icheru 👋
 
 
 ## 🌐 Socials:
